@@ -1,7 +1,7 @@
 ## hi guys
 i dont want to bedazzle this place a lot
+<img width="2136" height="1868" alt="image" src="https://github.com/user-attachments/assets/4331a9a2-9c37-4bb3-8c21-e62f0c0ea31e" />
 
-![bug](https://github.com/user-attachments/assets/ff13fb5d-ee1d-4472-be62-7bad49cb91b7)
 you fell for it right
 
 
