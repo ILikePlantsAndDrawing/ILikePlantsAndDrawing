@@ -4,4 +4,4 @@ i dont want to bedazzle this place a lot
 
 you fell for it right
 
-
+$$\color{red}{hi}$$
