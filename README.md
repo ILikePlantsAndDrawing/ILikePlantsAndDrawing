@@ -4,4 +4,5 @@ i dont want to bedazzle this place a lot
 
 you fell for it right
 
-$$\color{red}{†also i just want to say that God loves you with all his heart.†}$$
+$$\color{red}{†also, \ I \ just \ want \ to \ say \ that \ God \ loves \ you \ with \ all \ his \ heart.†}$$
+$$\color{red}{Proud \ Catholic!!}$$
